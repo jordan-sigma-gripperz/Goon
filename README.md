@@ -1,7 +1,6 @@
-# 🌀 GOONING — A Digital Odyssey (Satire)
+# 🌀 FEMINISM
 
-Welcome to **GOONING**, the world's most unproductive productivity tool. This satirical website parodies our screen-obsessed culture, dopamine dependency, and the subtle art of completely losing track of time.
-
+Welcome to **FEMINISM**, the world's most productive productivity tool. This is the best website ever made
 ---
 
 ## 👁️‍🗨️ What is this?
