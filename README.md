@@ -5,16 +5,15 @@ Welcome to **FEMINISM**, the world's most productive productivity tool. This is 
 
 ## 👁️‍🗨️ What is this?
 
-This is a parody HTML site meant to simulate the experience of "gooning" — not in the literal or explicit sense, but as a **meta-commentary on doomscrolling, binge-watching, and general digital zombification**.
-
+Thuis is the best website for learning about feminism
 ---
 
 ## 🚧 Features
 
-- 🧠 Brain-melting design
-- 💀 Existential dread simulator
-- ⏱️ Real-time time loss (results may vary)
-- 🧍 No goals, no outcomes, no point
+- 🧠respecting women
+- 💀 killer instincts
+- ⏱️ Real-time aura gain
+- 🧍become the alpha
 
 ---
 
